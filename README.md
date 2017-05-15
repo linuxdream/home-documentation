@@ -21,9 +21,9 @@ Feel free to change the interior paint colors as you wish. For the original colo
 # Pests
 Yes, there are scorpions. On average, we will find 2-3 in the house. Typically, we find them around the stairs and/or in the laundry room/kitchen. We have found that the best strategy is protection in layers:
 
-- Spray both perimeters (along the outside house and perimeter wall) with a good poison every three months. We use (this one and spray ourselves)[https://www.amazon.com/Cy-Kick-Controlled-Release-Cyfluthrin-Insecticide/dp/B002ACMKV8/ref=sr_1_1?s=lawn-garden&ie=UTF8&qid=1494827699&sr=1-1&keywords=scorpion+poison] though you can hire a company. 
+- Spray both perimeters (along the outside house and perimeter wall) with a good poison every three months. We use [this one and spray ourselves](https://www.amazon.com/Cy-Kick-Controlled-Release-Cyfluthrin-Insecticide/dp/B002ACMKV8/ref=sr_1_1?s=lawn-garden&ie=UTF8&qid=1494827699&sr=1-1&keywords=scorpion+poison) though you can hire a company. 
 - Set a number of sticky traps inside the house along main walls. We don't do this in the garage as we typically only catch good pests like lizards there. 
-- During scorpion season, go outside after dark and hunt them with a black light. Get a beefy one that lights up a large area (like this one)[https://www.amazon.com/Focuspet-Flashlight-Blacklight-Furniture-batteries/dp/B01MR19UWG/ref=sr_1_12?s=hardware&ie=UTF8&qid=1494827942&sr=1-12&keywords=black+light]. They become very easy to see even across the yard. Dispatch however you like. We use a long stick and/or scissors. Over a year, we will typically kill about 10-15 outside.
+- During scorpion season, go outside after dark and hunt them with a black light. Get a beefy one that lights up a large area [like this one](https://www.amazon.com/Focuspet-Flashlight-Blacklight-Furniture-batteries/dp/B01MR19UWG/ref=sr_1_12?s=hardware&ie=UTF8&qid=1494827942&sr=1-12&keywords=black+light). They become very easy to see even across the yard. Dispatch however you like. We use a long stick and/or scissors. Over a year, we will typically kill about 10-15 outside.
 
 # Pool
 You are more than welcome to hire a pool service to maintain the pool. However, it's pretty easy to maintain on your own and save some money. The routine we typically follow is:
