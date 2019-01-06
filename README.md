@@ -41,6 +41,13 @@ If you go swimming at night during the summer months, be sure to scan the pool a
 
 The pool fence is removable. Simply unlock the metal clips at the top of the poles then pull the pole out of the hole. In one of the garage cabinets, there are caps to put in the holes if you wish to remove the gate long term. 
 
+Both pool pumps were replaced in 2018. One is a refurb unit (black) while the other is a genuine [Pentair 075234S](https://www.amazon.com/gp/product/B002NMW2GI/ref=oh_aui_search_detailpage?ie=UTF8&psc=1). If there is ever a problem with the pump, especially the black one as it is very noisy and will likely fail again, please purchase the OEM Pentair. It is super quiet.
+
+# Washer/Dryer
+Washer: Samsung WF363BTBEUF/A2 and parts can be found [here](https://www.samsungparts.com/Products/Parts_and_Accessories/WF363BTBEUF/A2/Default.aspx) 
+
+- 2019-01-06: Pressure sensor and both hot/cold water valves were replaced after the unit was randomly reporting an 1E error code. 
+
 # Security System
 In the downstairs closet is the security system. The panel is located in the laundry room. The house is hardwired with a Honeywell Vista 20P that can be connected to a land line and a security monitoring service. 
 
