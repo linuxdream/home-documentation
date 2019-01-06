@@ -27,6 +27,8 @@ Yes, there are scorpions. On average, we will find 2-3 in the house each year. T
 
 Flys and mosquitoes are of course somewhat common. The backyard screen door was just replaced (5/2017) so you should be good there. Aside from that, we've never had an ant problem or any other kind of infestation. The home was treated for termites in 2015 and is very much still under that warranty. 
 
+- 2018: This year I got an early start on scorpion hunting and killed about 8 in May once the temps started hitting 90+. I believe this had a very positive effect as come July and beyond, I did not see a single scorpion outside and this is the first year I never found any inside. I'm guessing I cut the reproducing population and thus no babies!
+
 # Pool
 You are more than welcome to hire a pool service to maintain the pool. However, it's pretty easy to maintain on your own and save some money. The routine we typically follow is:
 
